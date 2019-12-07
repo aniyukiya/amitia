@@ -1,2 +1,2 @@
 # amitia
-It makes me stronger.
+努力。
